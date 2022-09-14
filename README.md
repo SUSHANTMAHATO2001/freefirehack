@@ -1,0 +1,2 @@
+# freefirehack
+Welcome Hackers 🙏
